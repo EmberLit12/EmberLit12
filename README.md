@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @EmberLit12
+- Average gamer
+- Newbie coder
+- Experienced designer
